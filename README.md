@@ -1,2 +1,0 @@
-# vamosucv
-privacy policy
